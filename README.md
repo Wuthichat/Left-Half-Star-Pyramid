@@ -1,0 +1,1 @@
+# Left-Half-Star-Pyramid
